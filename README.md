@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @71tt73D34th
-- 👀 I’m interested in cool code I cam customize 
+- 👀 I’m interested in cool code I can customize 
 - 🌱 I’m currently learning html, css and java
 - 💞️ I’m looking to collaborate on anything lol
 - 📫 How to reach me check out my reddit @Call_me_lillith 
